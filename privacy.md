@@ -67,8 +67,8 @@ Questions about the Page or its content may be directed to the Page owner.
 For questions about this Privacy Policy or the App’s data practices, contact:
 
 The Neural Net  
-Email: your email here  
-Facebook Page: your page URL here
+Email: sexitimefun@yahoo.com
+Facebook Page: [The Neural Net](https://www.facebook.com/profile.php?id=61587038441585)
 
 9. Changes to This Policy
 This Privacy Policy may be updated as needed. Any changes will be posted at the same URL where this policy is hosted.
